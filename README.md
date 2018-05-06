@@ -1,0 +1,2 @@
+# karenrnortonn.github.io
+static
